@@ -1,0 +1,1 @@
+# Global-Human-Health-Index-2026
